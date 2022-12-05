@@ -1,2 +1,0 @@
-# Muchammad-Chanafy
-Web Pribadi
